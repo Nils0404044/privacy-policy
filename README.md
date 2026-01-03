@@ -28,4 +28,4 @@ ihrer Daten im Rahmen der gesetzlichen Bestimmungen.
 
 7. Kontakt
 Bei Fragen zum Datenschutz:
-E-Mail: DEINE_EMAIL@EMAIL.DE
+E-Mail: knorreknils@gmail.com
